@@ -6,10 +6,6 @@ Hashfi Putraza Hikmat 05111942000021
 
 Hika Pasya Mustofa 05111942000015
 
-Link Proposal Presentation
-
-https://docs.google.com/presentation/d/1zVT7hKaYw587hKPMEdtJDrZrkX9z_U9KOxMGkZXOhME/edit#slide=id.g16a0a542fc5_1_0
-
 Link Tugas Presentasi
 
 https://docs.google.com/presentation/d/1Pq70H7zCASAElMJUgyrrNwB-5zyOpEgJ9H2mFF6FqWE/edit?usp=sharing
